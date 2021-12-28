@@ -9,4 +9,4 @@ Welcome to Amber Star Planet
 
 That is so funny! :KO KUMA:
 
-![KO](Grizzly-Thumbnail-1.jpg)
+![KO] 
